@@ -9,4 +9,4 @@ Michael Andreas Helmuth Ende war ein deutscher Schriftsteller. Er zählt zu den 
 * nimmt Stellung zu Politik und Wirtschaft
 
 ## Zitat
-> „Man darf von jeder Tür aus in den literarischen Salon treten, aus der Gefängnistür, aus der Irrenhaustür oder aus der >Bordelltür. Nur aus einer Tür darf man nicht kommen, aus der Kinderzimmertür. Das vergibt einem die Kritik nicht. Das >bekam schon der große Rudyard Kipling zu spüren. Ich frage mich immer, womit das eigentlich zu tun hat, woher diese >eigentümliche Verachtung alles dessen herrührt, was mit dem Kind zu tun hat.“
+> „Man darf von jeder Tür aus in den literarischen Salon treten, aus der Gefängnistür, aus der Irrenhaustür oder aus der Bordelltür. Nur aus einer Tür darf man nicht kommen, aus der Kinderzimmertür. Das vergibt einem die Kritik nicht. Das bekam schon der große Rudyard Kipling zu spüren. Ich frage mich immer, womit das eigentlich zu tun hat, woher diese eigentümliche Verachtung alles dessen herrührt, was mit dem Kind zu tun hat.“
